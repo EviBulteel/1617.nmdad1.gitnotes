@@ -1,4 +1,3 @@
-
 ![Ik](https://pbs.twimg.com/profile_images/733675827532070912/aFNpvNSJ.jpg)
 
 **CURRICULUM VITAE**
@@ -6,12 +5,14 @@
 **Evi Bulteel**
 **Stroombanklaan 35**
 **8400 Oostende**
-**+32 4 78 45 65 95**
-**evi.bulteel@hotmail.com**
-**Op kot in Gent**
+**Geslacht: vrouw**
 **Geboren: 18 november 1996 in Oostende**
 **Nationaliteit: Belg**
-**Geen rijbewijs (komt dit academiejaar nog)**
+**ongehuwd**
+**+32 4 78 45 65 95**
+**evi.bulteel@hotmail.com**
+**https://vimeo.com/evibulteel**
+**https://www.facebook.com/evi.bulteel**
 
 ERVARING
 --------
